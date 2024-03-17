@@ -2,6 +2,10 @@
 
 Football | Reims – Metz : Chaîne, streaming, où voir le match et à quelle heure ?
 
+<strong> 🔴📺DIRECT📲👉 <a href="https://onlinestreamshd.com/league1/" rel="nofollow"> REIMS - METZ EN DIRECT STREAMING </a> </strong>
+
+<strong> 🔴📺DIRECT📲👉️ <a href="https://onlinestreamshd.com/league1/" rel="nofollow"> REIMS - METZ EN DIRECT STREAMING </a> </strong>
+
 Bonjour à toutes et à tous !
 Direction plein Est pour suivre en direct cette rencontre de la 26e journée de Ligue 1 entre Reims (9e, 35 points) et Metz (17e, 23 pts), au stade Auguste-Delaune.
 
